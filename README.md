@@ -9,3 +9,6 @@ Kesan pesan saya selama INTRIVIA sejauh ini jujur capek tapi seru banget. Awalny
 
 ## Kesan Pesan Cluster [13] Sejauh Ini
 Untuk Cluster 13 sejauh ini kesan nya luar biasa solid dan seru. Anak-anaknya asik, saling bantu, gak ada yang pelit ilmu kalau ada yang kesulitan pas ngerjain tugas. Yang paling berkesan itu kakak pendampingnya, Kak Fabi dan Kak Salma. Mereka berdua bener-bener sabar banget, baik, dan responsif. Setiap ditanya pasti dijawab sampai paham, gak pernah bikin kita ngerasa sungkan buat nanya. Cara mereka nyampein materi juga santai jadi gak tegang. Berkat Kak Fabi dan Kak Salma, suasana Cluster 13 jadi hidup dan kekeluargaan banget. Semoga Cluster 13 tetep kompak terus sampai akhir.
+
+## Harapan Kuliah
+Saya berharap selama kuliah bisa lebih mandiri, bisa menguasai skill IT terutama di bidang yang saya minati, bisa membangun relasi yang baik dengan teman dan dosen, serta bisa mengembangkan diri baik secara akademik maupun non-akademik.
